@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning everything :D
 - 😄 Pronouns: He/him
-- 🎃 I speak english quite well ( ˘︹˘ )
+- 🎃 I speak english quite well 😥
 - ⚡ Fun fact: I like cats, but I don't have any 🤡
 - 🎈 My birthday is August 20
 
