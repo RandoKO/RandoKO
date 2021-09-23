@@ -6,13 +6,14 @@
 
 ![This is an image](https://f.rpp-noticias.io/2020/02/29/mac-907326mp4_907327.png)
 
-I like:
-- Play videogames.
-- Watch videos.
-- Draw anything.
 
 - 🌱 I’m currently learning ...
+- ⚡ Fun fact: I play League of Legends, but usually I lost the rankeds :c
 - 😄 Pronouns: He/him
+- 🎃 I speak english quite well ( ˘︹˘ )
+
+This is my instagram:
+https://www.instagram.com/el_pana_legendario/
 <!--
 **RandoKO/RandoKO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
