@@ -7,10 +7,11 @@
 ![This is an image](https://f.rpp-noticias.io/2020/02/29/mac-907326mp4_907327.png)
 
 
-- 🌱 I’m currently learning ...
-- ⚡ Fun fact: I play League of Legends, but usually I lost the rankeds :c
+- 🌱 I’m currently learning everything :D
 - 😄 Pronouns: He/him
 - 🎃 I speak english quite well ( ˘︹˘ )
+- ⚡ Fun fact: I like cats, but I don't have any 🤡
+- 🎈 My birthday is August 20
 
 This is my instagram:
 https://www.instagram.com/itiz_not_yours/
