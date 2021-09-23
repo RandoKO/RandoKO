@@ -2,7 +2,7 @@
 
 *Welcome to my profile :P*
 
-*I'm Fernando a student of Computer Science. I'm  from Lima, Peru and I'm 17 years old*
+*I'm Fernando a student of Computer Science. I'm  from Lima, Peru*
 
 ![This is an image](https://f.rpp-noticias.io/2020/02/29/mac-907326mp4_907327.png)
 
