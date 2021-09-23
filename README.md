@@ -13,7 +13,7 @@
 - 🎃 I speak english quite well ( ˘︹˘ )
 
 This is my instagram:
-https://www.instagram.com/el_pana_legendario/
+https://www.instagram.com/itiz_not_yours/
 <!--
 **RandoKO/RandoKO** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
